@@ -1,2 +1,0 @@
-# hussain
-intern
